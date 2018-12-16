@@ -1,0 +1,12 @@
+*.h5
+*.hdf5
+*.log
+*.txt
+*.csv
+*.json
+*.pyc
+*.npy
+*.npz
+events.*
+words/
+
