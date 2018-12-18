@@ -116,27 +116,29 @@ def load_data(file_name, num_samples):
                 raw_texts.append(row)
                 cnt += 1
             
-    return ''.join(raw_texts)
+    #return ''.join(raw_texts)
+    return raw_texts
 
 def generate_lm_data(raw_texts, in_seq_len, out_seq_len):
     input_texts = []
     target_texts = []
-    for sent in sent_tokenize(raw_texts):
-        
-        n_chars = len(sent)
-        chunk_len = (in_seq_len+out_seq_len)
+    for line in raw_texts:
+        for sent in sent_tokenize(line):
 
-        for i in range(0, n_chars - chunk_len):
-            # Boundaries of chunk
-            start_in = i
-            end_in = start_in+in_seq_len
-            start_out = end_in
-            end_out = start_out + out_seq_len
-                        
-            # Chunks slicing
-            input_texts.append(sent[start_in: end_in])
-            #target_texts.append('\t' + sent[start_out:end_out] + '\n')
-            #target_texts.append(sent[start_out:end_out] + '\n')
+            n_chars = len(sent)
+            chunk_len = (in_seq_len+out_seq_len)
+
+            for i in range(0, n_chars - chunk_len):
+                # Boundaries of chunk
+                start_in = i
+                end_in = start_in+in_seq_len
+                start_out = end_in
+                end_out = start_out + out_seq_len
+
+                # Chunks slicing
+                input_texts.append(sent[start_in: end_in])
+                #target_texts.append('\t' + sent[start_out:end_out] + '\n')
+                target_texts.append(sent[start_out:end_out] + '\n')
     return input_texts, target_texts
     
 def load_data_with_gt(file_name, num_samples, max_sent_len, min_sent_len, delimiter='\t', gt_index=1, prediction_index=0):
