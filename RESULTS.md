@@ -1520,3 +1520,951 @@
  |  and if I was, I sho | ldn't want YOURS: I | k I hand to w,ink i | 
  | is way through the n | ighbouring pool--sh | ight as the little  | 
  | n nursing her child  | gain, singing a sor | ong again frown in | 
+ | now about it, you ma | stand down,' conti |  let you cou,d only | 
+ | le the Panther recei | ed knife and fork w | s as he first wavin | 
+ | like ears and the ro | f was thatched with | es whether the plas | 
+ |  to herself, 'in my  | oing out altogether | ook little ,irls gi | 
+ |  larger again, and s | e thought at first | onern for the,baby | 
+ | ike having a game of | play with a cart-ho |  this rish and she | 
+ |  ran the faster, whi | e more and more fai | ing very anxiou,ly  | 
+ | d then another confu | ion of voices--'Hol | red to the Dormouse | 
+ |  master was an old T | rtle--we used to ca | ates 'SHE doesn't  | 
+ | said Alice, a good d | al frightened at th | somerely r,marking  | 
+ | oubtfully: 'it means | -to--make--anything | hal I:must neig | 
+ | een running half an  | our or so, and were | arge do will do p | 
+ | lan, no doubt, and v | ry neatly and simpl | ice,alone of ,roque | 
+ | r again, and she tho | ght at first she wo |  all th, first vers | 
+ |  minutes the whole c | urt was in confusio | okily again to the  | 
+ | the ten courtiers; t | ese were ornamented | ough who seemed ;o | 
+ | mping merrily along  | and in hand, in cou | ight hole for his  | 
+ | n all the way down o | e side and up the o |  seen them all the | 
+ | , jumping up in a gr | at hurry; 'this pap | ,ther but 'It been | 
+ | ousand miles down, I | think--' (for, you | f a great wonder ,t | 
+ | ther it's marked "po | son" or not'; for s |  not rememory to "a | 
+ |  shyly, 'I--I hardly | know, sir, just at | r to h,rse-- as sh | 
+ | ddenly a footman in  | ivery came running | urning it intares i | 
+ | s a long silence aft | r this, and Alice c | en inches to Alice  | 
+ |  she dreamed of litt | e Alice herself, an | en in a head of lam | 
+ | really must be getti | g home; the night-a | ' said the Caterpi | 
+ | ures got so close to | her, one on each si | end and sneet befor | 
+ | turned pale, and shu | his note-book hast | ting of lit,le hous | 
+ | , of course,' said t | e Dodo, pointing to | ,Alice ver, gravel | 
+ |  should like to be a | LITTLE larger, sir, | reager 'I can't re | 
+ | nds, and walked two  | nd two, as the sold | er ,hat the pebbles | 
+ | he next thing was to | eat the comfits: th | thing end the same  | 
+ | g so VERY remarkable | in that; nor did Al |  in that nor did A | 
+ | on where you want to | get to,' said the C | ed and smiled in th | 
+ | wise fish would go a | ywhere without a po | rel looking about h | 
+ |  on, spreading out t | e verses on his kne |  he, verdes verses  | 
+ |  the March Hare had  | ust upset the milk- | one in the distance | 
+ | hen; such as, 'Sure, | I don't like it, ye |  th; Mock Tu,tle dr, | 
+ | se I'm on the same s | de of the door as y | en in a deep sigh | 
+ |  ought to eat or dri | k something or othe | h other size so sh | 
+ | Thank you, sir, for  | our interesting sto | irding me,ture, it  | 
+ | t perhaps it was onl | the pepper that ha |  the same tone fel | 
+ | ade Alice quite hung | y to look at them-- | tly at the door lit | 
+ | ou ought to be asham | d of yourself,' sai |  of mushroom in a l | 
+ | d NOT be an advantag | ,' said Alice, who | ing it' said Alice | 
+ |  of course was, how  | o get dry again: th | edgehogh and ,one  | 
+ | t belong to one of t | e doors of the hall | istle of getting he | 
+ | ehind it was a littl | door about fifteen |  about fifteen inch | 
+ | it out again, and pu | it right; 'not tha | ting very an,iously | 
+ | u'll understand why  | t is I hate cats an | aid in the last of  | 
+ | d she ran with all s | eed back to the lit | ild aid say 'I am  | 
+ | Then she went to wor | nibbling at the mu |  the moment she had | 
+ | -Who's to go down th | chimney?--Nay, I s | -chimney?In mysel | 
+ |  barley-sugar and su | h things that make | ning th- roofhouse | 
+ | ct,' the March Hare  | nterrupted, yawning | ea,e jurtle in the  | 
+ | 't help that,' said  | he Cat: 'we're all | it was now o,ly ten | 
+ | ok itself, and began | singing in its slee | ing with ,ome circu | 
+ | te Rabbit read out,  | t the top of his sh | ot sigat at all h, | 
+ | ce was not a bit hur | , and she jumped up | ly as she could an | 
+ | d considered a littl | before she gave he |  was being both sat | 
+ |  speaking to a mouse | she had never done | d 'I don't believe | 
+ | Tis the voice of the | Lobster; I heard hi |  deep or she fell  | 
+ | nted it much,' said  | lice; 'living at th | o make look,ng at  | 
+ | oud crash)--'Now, wh | did that?--It was |  had that)--ey w,ul | 
+ |  quietly said, just  | s if it had come ba | ot sight as i,t it  | 
+ | d as it could go, an | making quite a com |  making quite a ,om | 
+ | poke at once, she fo | nd it very hard ind | ning her chi,d a ru | 
+ | ding his arms and fr | wning at the cook t | nted his are all th | 
+ | little animal (she c | uldn't guess of wha | uldn't guesss (o he | 
+ | py, and went on sayi | g to herself, in a | g ,he door began lo | 
+ | inning to get very t | red of sitting by h | at with the distant | 
+ | ld not stand, and sh | went round the cou | ink ready fo, your  | 
+ | rink much from a bot | le marked 'poison,' |  its my tare in tha | 
+ | hem, and it'll sit u | and beg for its di |  a ,ottle more bold | 
+ |  looking about for s | me way of escape, a | eem to herself as  | 
+ | ld remember about ra | ens and writing-des | sons in them whice  | 
+ | tes that she wasn't  | bit afraid of inte | ust be a parry of t | 
+ | recognised the White | Rabbit: it was talk | Rabbit it was talk | 
+ | y were learning to d | aw,' the Dormouse w | ther but the Dormo | 
+ | puzzled, but she tho | ght there was no us |  she co,ld not thin | 
+ | rdly know--No more,  | hank ye; I'm better | or Alice --rned an, | 
+ | em, they were trying | to put the Dormouse | to,put it pair of b | 
+ | e executioner myself | ' said the King eag |  and no roof of li | 
+ | t a white one in by  | istake; and if the | ifficulty was that | 
+ |  not sneeze, were th | cook, and a large |  conversati,n was  | 
+ | : the only difficult | was, that her flam | :gain and said to  | 
+ |  into the way of exp | cting nothing but o | anced to see what w | 
+ | nd about it; if I'm  | abel, I'll stay dow | ain I shri;ped in  | 
+ | r Majesty,' said the | Knave, 'I didn't wr |  very hum,le but i | 
+ | ritated at the Cater | illar's making such | with her barges in  | 
+ | the Hatter went on i | a mournful tone, ' |  at all talk again | 
+ | he first question of | course was, how to |  things and she wa | 
+ |  if he would deny it | too: but the Dormou | at on the floor in | 
+ | r times five is twel | e, and four times s |  it as far as they  | 
+ | " and I never unders | ood what it meant t | "nd the bright flow | 
+ | lse to say but 'It b | longs to the Duches | ush' the Mock Turt | 
+ | ce guessed who it wa | , even before she g | d in the party went | 
+ | : next the ten court | ers; these were orn | :ng to her 'but th | 
+ | o do that,' said the | Cat, 'if you only w |  'why i, a fish c | 
+ | n, and all the other | queer noises, would |  ,ould not about th | 
+ | window, and one foot | up the chimney, and | up to ,er face as  | 
+ | 's rather curious, y | u know, this sort o | iry for she had ,o | 
+ | ge, but very glad to | find herself still | li,g in her head a | 
+ | place, with a little | house in it about f |  down,in a minute o | 
+ | ce heard the Rabbit  | ay, 'A barrowful wi | eeply unt Alice an | 
+ | re puzzled, but she  | hought there was no | uck as it ,urnate a | 
+ | iculty was, that her | flamingo was gone a | ate was no, do that | 
+ | on her toes when the | passed too close, |  as she had been w | 
+ | he White Rabbit as h | fumbled over the l | m to sing its eyes  | 
+ |  children; there wer | ten of them, and t | n tremble; lessons  | 
+ | han what you had bee | would have appeare |  hold of the house  | 
+ | t's marked "poison"  | r not'; for she had | or Alice re"ource " | 
+ | n't know that Cheshi | e cats always grinn | l came to find a th | 
+ | , so that it was not | easy to know when t | ,ng very anxiously  | 
+ | heard of "Uglificati | n,"' Alice ventured | l Alice "ery few l | 
+ | ht it must be the ri | ht house, because t | h' said the King  | 
+ | Why, there's hardly  | nough of me left to | o g, on crying in t | 
+ | inished, her sister  | issed her, and said | asy see, shake it p | 
+ | try and say "How dot | the little--"' and | ' she said"to her | 
+ |  a box of comfits, ( | uckily the salt wat | ich have to fall ,p( | 
+ | 's hardly worth whil | finishing the game |  it was addressed  | 
+ | ll it her,' said the | Mock Turtle in a de |  William ,n an offe | 
+ |  my poor hands, how  | s it I can't see yo | earing anythin, tha | 
+ |  hurried off at once | one old Magpie beg | g on so her to poop | 
+ | ce could think of no | hing else to say bu |  the Queen of the b | 
+ | words all coming dif | erent, and then the | ing the roof of the | 
+ | ou see, Miss, this h | re ought to have be | d down,his h,ar dow | 
+ | on, 'if you don't kn | w what to uglify is | ll,you hall have yo | 
+ | o her that she ought | to have wondered at | ne word 'moral' an | 
+ | the candle is blown  | ut, for she could n | o shrink and the b | 
+ | t she knew that it m | ght happen any minu | eat do and in dear | 
+ | ked, so that it was  | ot easy to know whe | all, and raised her | 
+ | would be very likely | to eat her up in sp |  to eat her up in s | 
+ | at's nothing to what | I could say if I ch |  the Pighon with th | 
+ | set, and their slate | and pencils had be |  in,their mouths a | 
+ | rd the Queen's voice | in the distance, sc |  on the distant sob | 
+ | he could, for her ne | k kept getting enta |  rememy,remarked ' | 
+ |  with one eye; but t | get through was mo | ought to get ;o go  | 
+ | r a minute or two sh | stood looking at t |  knew things indeed | 
+ | ned to say a word, b | t slowly followed h |  the fall asleep ,n | 
+ | hould forget them be | ore the end of the | nticular to make ou | 
+ | cauldron which seeme | to be full of soup |  to be sure to know | 
+ | sleepy, and went on  | aying to herself, i | ones w,en it didn't | 
+ | 't matter,' it said, | and then all the p | ' said t,e Hatter, | 
+ | way,' but they began | running when they l |  wo,der a trem to b | 
+ | wondering if anythin | would EVER happen |  preped out the par | 
+ | ocession came opposi | e to Alice, they al | y the sea though t | 
+ | d I hadn't begun my  | ea--not above a wee | ay of a good way go | 
+ | ng passage, and the  | hite Rabbit was sti | ootman was,so small | 
+ | een a rabbit with ei | her a waistcoat-poc |  word 'as she had w | 
+ | e's going on rather  | etter now,' she sai | ary is the same age | 
+ |  all,' said the Whit | Rabbit; 'in fact, |  Rab,it 'in fact  | 
+ | gun my tea--not abov | a week or so--and |  what such-- week o | 
+ | a neat little house, | on the door of whic |  her dod doun of th, | 
+ | got up very sulkily  | nd crossed over to | one and looked at i | 
+ | lden key in the lock | and to her great d | ssom to the beginni | 
+ | d draw treacle out o | a treacle-well--eh |  to a small patted  | 
+ | ut under a tree in f | ont of the house, a | o showing the Queen | 
+ | ce around her became | alive with the stra | s the staring at th | 
+ | e Footman's head: it | just grazed his nos | unify course you:ha | 
+ | ooked down at her fe | t, they seemed to b | t with a soldier o | 
+ | 'Back to land again, | and that's all the |  the soldiers were , | 
+ | ten soldiers carryin | clubs; these were |  under the sea' th | 
+ | aid to the jury, in  | low, trembling voi | aid and shall t, th | 
+ | t be some sense in y | ur knocking,' the F | urse you know what  | 
+ | d it much,' said Ali | e; 'living at the b | tly 'tol,outely a | 
+ | n a fight with anoth | r hedgehog, which s |  heard explain it i | 
+ | white, but there wer | three gardeners at |  a lo,g way back a | 
+ |  the wretched Hatter | trembled so, that h |  trembled so that  | 
+ | week: HE taught us D | awling, Stretching, | rmou:e and I can't | 
+ | r when she looked do | n at her feet, they | s and stop of has h | 
+ |  be a walrus or hipp | potamus, but then s | an pan one but th | 
+ | eness was more than  | lice could bear: sh | asy it too long an | 
+ |  you were never even | introduced to a lob |  a nois and in ano | 
+ | ll, I shan't go, at  | ny rate,' said Alic | no,gh st asleep,int | 
+ | --' when his eye cha | ced to fall upon Al | --y English 'but  | 
+ | o execute the unfort | nate gardeners, who | anine and a pair of | 
+ | T have meant some mi | chief, or else you' | hing that' said th | 
+ |  is--"Take care of t | e sense, and the so | o s--" them the Ra | 
+ | thing never happened | and now here I am | and nothing elbouse | 
+ | belled 'ORANGE MARMA | ADE', but to her gr | LARD and the proce | 
+ | x,' thought Alice, ' | nd those twelve cre | o,ly too long an,  | 
+ | at he had to ask his | neighbour to tell h |  in to her usual he | 
+ | o Alice an excellent | opportunity for cro | d 'you never to do | 
+ | nstant howling and s | eezing, and every n | end and said witho | 
+ | will make you grow t | ller, and the other | at one and there is | 
+ | nished, her sister k | ssed her, and said, | ise in,as well go b | 
+ | dly know--No more, t | ank ye; I'm better | at she m--e one p,p | 
+ | d, and took the thim | le, looking as sole |  ,ittle panty looke | 
+ | he opened it, and fo | nd in it a very sma | n in the han,ed off | 
+ | , and taking not the | smallest notice of | ,so small as this c | 
+ |  shall sit here,' th | Footman remarked, |  Footman remark,d  | 
+ | e, and ran till she  | as quite tired and | a,d as he came trot | 
+ | The soldiers were si | ent, and looked at | ter to be alget to  | 
+ | she heard the Queen' | voice in the dista |  and smiled in in t | 
+ | o listen to her, sti | l it was good pract | l as it can't p,ssi | 
+ | e had been looking o | er his shoulder wit |  deal was said and | 
+ | ou mean you can't ta | e LESS,' said the H | s myself' said the | 
+ | w herself up and sai | , very gravely, 'I |  'I replace she ha | 
+ | t's all you know abo | t it, you may stand |  in a more size fo | 
+ | ' Alice replied in a | offended tone, 'so | long that to be the | 
+ | seemed to be no chan | e of getting her ha | s of sight before  | 
+ |  he said to the jury | in a low, tremblin |  on to her feat an | 
+ | into it), and handed | them round as prize | rown pr),er places | 
+ | repeating all that s | uff,' the Mock Turt | e too began looking | 
+ | e, by the way, was t | e King; and as he w | l, it was add,essed | 
+ | le, beloved snail, b | t come and join the | f ,ourse you know,w | 
+ | the use of repeating | all that stuff,' th |  that she ran off a | 
+ | irection it pointed  | o, without trying t | ot to one of the tr | 
+ |  it her,' said the M | ck Turtle in a deep | uch wal,nte in live | 
+ | tively, and seemed t | her to wink with o | ough t, look over t | 
+ |  didn't know it was  | OUR table,' said Al | alk another more th | 
+ |  an hour or so, and  | ere quite dry again | one was too da,k to | 
+ | d her arm affectiona | ely into Alice's, a | sion but he nousel | 
+ |  the other: the Duch | ss was sitting on a | s was an o:d up the | 
+ | impossible to say wh | ther the blows hurt |  had been found and | 
+ | hat was sitting on t | e top with its arms | o do with the troul | 
+ | e first sentence in  | er French lesson-bo | ocking' said the C | 
+ | E been to a day-scho | l, too,' said Alice | leand wore th-ee | 
+ | nge at first; but sh | got used to it in | inked and su;h unde | 
+ | eemed to be no sort  | f chance of her eve | ince or twice she h | 
+ | d sulky, and would o | ly say, 'I am older |  say ', am older t | 
+ | ading, but it had no | pictures or convers |  like,to go nearer  | 
+ | VERY good opportunit | for showing off he | again in the same w | 
+ | ng to herself 'This  | s Bill,' she gave o | oo slipped and in  | 
+ | nkle--' and went on  | o long that they ha | ook --ether they wo | 
+ | 'Please, then,' said | Alice, 'how am I to | the Mou,e ga,nened | 
+ | ,' said the Duchess; | 'I never could abid | , he was speaking ; | 
+ | nd it: there was a d | spute going on betw | sides:all talking a | 
+ | ouse, who seemed to  | e a person of autho | er o,e of the poper | 
+ | that she was ready t | ask help of any on | ree in the lobsters | 
+ | she squeezed herself | up closer to Alice' |  crossed to change  | 
+ | ,' the Gryphon went  | n, 'if you don't kn | ,ving tears in the  | 
+ | te sure whether it w | s good manners for | is pricted to find  | 
+ | rt; but on second th | ughts she decided t | in;she had not as I | 
+ | I don't know one,' s | id Alice, rather al | ink you our cat ,in | 
+ | re to laugh; and, as | she could not think | she could n;t th,nk | 
+ | id so, and giving it | a violent shake at | e was,a vary watch | 
+ | ed in bringing herse | f down to her usual | ting down his face  | 
+ | tone; 'at least ther | 's no room to grow |  wor;d hardly sooni | 
+ | y, now you ask me,'  | aid Alice, very muc | o,Alice ventured ,o | 
+ | aking not the smalle | t notice of her or |  and looked over to | 
+ | hardly know, sir, ju | t at present--at le | t at preped,and ,ad | 
+ |  splashing about in  | he pool a little wa | asting about it ev | 
+ |  Mock Turtle, and sa | d 'What else had yo | d down a goo, wair  | 
+ | kah, and taking not  | he smallest notice | ame,are worse than  | 
+ | ter a pause: 'the re | son is, that I'm do | tion of mor: energa | 
+ | still it had VERY lo | g claws and a great | se garden call and | 
+ | of that is--"Birds o | a feather flock to |  the fell --"eep ag | 
+ | g in the shade: howe | er, the moment they |  and looked to:one? | 
+ | the Duchess was sitt | ng on a three-legge | now and the little | 
+ | ittle shriek and a f | ll, and a crash of | unce of the Lobster | 
+ | arther before she ca | e in sight of the h | e in sight have in  | 
+ | ly (it had left off  | neezing by this tim | oni(g to muling by  | 
+ | Table doesn't signif | : let's try Geograp | ing to her though | 
+ | ed to think this a g | od opportunity for | in of sitting by he | 
+ | said to the executio | er: 'fetch her here | ing for the rest of | 
+ | rpoise close behind  | s, and he's treadin | ut' said the King | 
+ | don't trouble yourse | f to say it any lon | tion of the singers | 
+ | ng as I get SOMEWHER | ,' Alice added as a | ALLIAM' Alice adde | 
+ |  interesting is sure | to happen,' she sai |  to be an old woman | 
+ | fond she is of findi | g morals in things! | go his find how to  | 
+ | bout in a melancholy | way, being quite un |  went on 'Why the | 
+ | took the thimble, lo | king as solemn as s | g again to the b,gi | 
+ | nd then another conf | sion of voices--'Ho |  of conversation wi | 
+ | t take LESS,' said t | e Hatter: 'it's ver | o 'to come,up it  | 
+ | m off, and found her | elf lying on the ba | ly la,ger lying an | 
+ | e Mouse, frowning, b | t very politely: 'D |  the th,ill say i,  | 
+ | tic archbishop of Ca | terbury, found it a |  she full of the bu | 
+ | l like the tone of t | is remark, and thou | ie in the distance | 
+ | uld you tell me,' sa | d Alice, a little t |  your again an, ti | 
+ | traightening itself  | ut again, so that a | o thin it soon fini | 
+ | ll the puppy's bark  | ounded quite faint | added to say it any | 
+ | e had put on one of  | he Rabbit's little | ettle Rabbit's litt | 
+ | jury-box,' thought A | ice, 'and those twe | ise-'an, this wase | 
+ | 'll fetch the execut | oner myself,' said |  sneezing all about | 
+ | y carefully, nibblin | first at one and t | s found and,ng it a | 
+ | s, to get into that  | eautiful garden--ho | e,a what I was goin | 
+ | ' said the Mock Turt | e at last, with a d | le in an offended t | 
+ | ng on rather better  | ow,' she said, by w | arge' said the Kin | 
+ |  either, but thought | they were nice gran |  were n,ce grand wo | 
+ |  a house, that she d | d not like to go ne | d not lo,king at ev | 
+ | ever: she sat down a | d began to cry agai | s as:he could be n | 
+ | o the game, the Quee | merely remarking t |  of the re,son in t | 
+ | n-up nose, much more | like a snout than a |  - little,ledge of  | 
+ | of yourself for aski | g such a simple que |  she was shrinking  | 
+ |  to be no chance of  | his, so she began l | hing the soup and  | 
+ | e how eagerly the lo | sters and the turtl | t and the little d | 
+ | nothing else to say  | ut 'It belongs to t | ore till she little | 
+ | ve often seen a cat  | ithout a grin,' tho | its with finished t | 
+ | or led right into a  | arge kitchen, which | armbly because I m | 
+ | er, and seemed to qu | ver all over with f | tl, of getting how  | 
+ | aces, and the patter | on their backs was |  in ,he distance in | 
+ | e chief difficulty A | ice found at first | ice found at first  | 
+ | n it were white, but | there were three ga |  the little gol,en  | 
+ | down his brush, and  | ad just begun 'Well | unning how hel, the | 
+ | g in it, and yet it  | as certainly Englis | aise ca,rying clubb | 
+ | the creatures order  | ne about, and make | ace and seemed to  | 
+ | d one of the cakes,  | nd was delighted to | ith the little dea, | 
+ |  you've been annoyed | ' said Alice, who w | ancholy word but h | 
+ | ale (with passion, A | ice thought), and i | inti(g to see it ,g | 
+ | ous puppy was lookin | down at her with l |  in the distant sob | 
+ | e girl,' said Alice, | rather doubtfully, | 's her,haste she h, | 
+ | COULD NOT SWIM--" yo | can't swim, can yo | ' said the Ha--"r? | 
+ | d went on: '--that b | gins with an M, suc | t stop an: b-- for  | 
+ | ff outside,' the Que | n added to one of t | ned add ta,k into a | 
+ |  the White Rabbit as | he fumbled over the | s began staring it  | 
+ | r eggs, as it happen | ; and if I was, I s |  in th, distance wo | 
+ |  as she could rememb | r them, all these s | r them all these s | 
+ | d by seeing the Ches | ire Cat sitting on |  Cat sit up and Cat | 
+ | at once without wait | ng for turns, quarr | out for the first  | 
+ | there goes his PRECI | US nose'; as an unu | n's angrily 'on an | 
+ | t advisable to go wi | h Edgar Atheling to | t Athere were Elsie | 
+ |  had never been in a | court of justice be | ong thourate in th | 
+ | rself before she fou | d herself falling d |  Mabs happen in a l | 
+ | ll seemed quite natu | al); but when the R | res at last was far | 
+ | ed much under the se | --' ('I haven't,' s | der than a real nos | 
+ | NK ME,' but neverthe | ess she uncorked it | en sa,ing and rust | 
+ | rather finish my tea | ' said the Hatter, | s they all cheered | 
+ | e it very much,' sai | Alice, 'but I have |  Alice 'but I,have | 
+ | about the reason and | all that,' he said |  a long way back t | 
+ | e and strange, and t | e words did not com | ich so like t,at wa | 
+ | hat I was going to s | y,' said the Dodo i | ould be raving mad  | 
+ | se in knocking,' sai | the Footman, 'and |  the Footman ,nd t | 
+ | unt,' said Alice; 't | at's not at all a p |  a ,ery small as;th | 
+ | made believe to worr | it; then Alice dod | y 'this fireplace  | 
+ | eshire cat,' said th | Duchess, 'and that |  Duchess ,and that | 
+ |  who wanted leaders, | and had been of lat | and then said 'The , | 
+ |  into the darkness a | hard as he could g | lest in all their s | 
+ | I once tasted--' but | checked herself has | soname your h--d co | 
+ | ' said the White Rab | it; 'in fact, there | ing by this time s | 
+ | se close behind us,  | nd he's treading on | he she's noticed b, | 
+ | mouths so VERY wide, | but she gained cour |  again to the garde, | 
+ | out two feet high, a | d was going on shri | lest ideally see ,f | 
+ | consider their verdi | t,' the King said, |  in figure before | 
+ | important,' the King | said, turning to th |  said tu,ning to t | 
+ |  had a little recove | ed from the shock o |  of the same age as | 
+ | Alice felt that this | could not be denied | mall her faining at | 
+ | nly mustard isn't a  | ird,' Alice remarke | igh' thought Alice | 
+ |  time to be lost, as | she was shrinking r | she was shrinkin, r | 
+ | ke off your hat,' th | King said to the H |  King said to t,e M | 
+ | d have made a dreadf | lly ugly child: but |  which she had but  | 
+ | en soldiers carrying | clubs; these were a | there were staying  | 
+ |  a large dish of tar | s upon it: they loo |  bird half out in a | 
+ | dow, and on it (as s | e had hoped) a fan | arp,how delp ha(e b | 
+ | ession came opposite | to Alice, they all |  the sea they all  | 
+ | for she thought, and | rightly too, that v |  the question i, t | 
+ | and frowning at the  | ook till his eyes w | ootman exactly thre | 
+ | hat is--"Birds of a  | eather flock togeth | ear th--"lamingo an | 
+ | 'One side will make  | ou grow taller, and | or a great deal of  | 
+ | e was nothing else t | do, so Alice soon | o do so Alice soon | 
+ | SOMETHING interestin | is sure to happen, |  in sight hurrying | 
+ |  had fluttered down  | rom the trees upon | o find another flow | 
+ | not stand, and she w | nt round the court | uld reall, remarkin | 
+ | ning to draw,' the D | rmouse went on, yaw | don went on,yawnin | 
+ | d last March--just b | fore HE went mad, y | y much mees--he mo | 
+ | out in a melancholy  | ay, being quite una | ire in the pool of  | 
+ |  the whole thing, an | longed to change t |  a baby it was ,on | 
+ | ood opportunity for  | howing off her know | ink so small as thi | 
+ | ULD always get into  | er eyes--and still | ith eitherI do wi | 
+ | t up to the Mock Tur | le, who looked at t | ow as she was a ver | 
+ | been all the way dow | one side and up th |  upon them THIS siz | 
+ | as not a bit hurt, a | d she jumped up on | d she jumped up i,  | 
+ | , 'till its ears hav | come, or at least | ,it could not to be | 
+ |  the glass table as  | efore, 'and things | ears whis time sat | 
+ | d to beat them off,  | nd found herself ly | inking it as nearl, | 
+ | ' said the youth, 'a | I mentioned before | d think you woul,n' | 
+ | hort remarks, and sh | drew herself up an | uld not help,back t | 
+ | tant,' the King said | turning to the jur | t to,the executione | 
+ | ng at it uneasily, s | aking it every now | ight it can't in ,r | 
+ | ,' said the Dormouse | after thinking a m | , without consideri | 
+ |  as he fumbled over  | he list, feeling ve | ire there is of lif | 
+ | ire cats always grin | ed; in fact, I didn |  the Queen memark  | 
+ | like,' said the Foot | an, and began whist | ly ,or she had to  | 
+ | --" you never had fi | s, my dear, I think | --"es for small for | 
+ | Alice, the little ma | ic bottle had now h | 's ha, a head could | 
+ | he White Rabbit crie | out, 'Silence in t |  and the little go | 
+ | tone, 'and they all  | uarrel so dreadfull | ed a,lobtele after | 
+ | uite natural); but w | en the Rabbit actua | at wo happen);ny ma | 
+ |  and Queen of Hearts | were seated on thei |  extmant to the thi | 
+ |  she tucked it away  | nder her arm, that | ore among that it m | 
+ | e, who was trembling | down to the end of | t,e smalless to the | 
+ | e executioner's argu | ent was, that you c | d was that was lin | 
+ | fter her as she went | out, but it just mi |  no use in the dist | 
+ | the March Hare inter | upted in a great hu | upt again to the be | 
+ | e was considering in | her own mind (as we | iness very anr offe | 
+ |  looked up, but it w | s all dark overhead | ild do ly,ng down  | 
+ | s so,' said the Duch | ss: 'and the moral | sass, 'and the mora | 
+ | would have made a dr | adfully ugly child: | ad under this very  | 
+ | sely against her foo | , that there was ha |  the trouble of glo | 
+ | er moment that it wa | addressed to the b | d as she fan heard  | 
+ | e the Queen had neve | left off staring a |  up and the rest of | 
+ |  muchness"--did you  | ver see such a thin | elight ea"-- to loo | 
+ | st, and managed to s | allow a morsel of t | e ,ee if she meant  | 
+ | 'He must have imitat | d somebody else's h | er 'I cut some mor | 
+ | thought she might as | well wait, as she h |  were or argered o | 
+ | e trumpet, and calle | out, 'First witnes | s as the ,ame thing | 
+ | ell you more than th | t, if you like,' sa | t if you like' sa | 
+ | mouse, come over wit | William the Conque |  one ,f the door bo | 
+ | -unimportant--unimpo | tant--important--' | -in managing--er mi | 
+ |  and say "How doth t | e little--"' and sh | ose lide "t turns  | 
+ | hat she looked down  | nto its face in som | ine and walking han | 
+ | elancholy way, being | quite unable to mov |  to box her o,n con | 
+ | st few minutes, and  | he jumped up in suc | aid seen them ,he c | 
+ | d to say "HOW DOTH T | E LITTLE BUSY BEE," | ust see "he Litt s | 
+ | question, but hurrie | ly went on, '"--fou | s and t,en turned  | 
+ | and his buttons, and | turns out his toes. | turning to the ,oup | 
+ | on the breeze that f | llowed them, the me | eme the moral of t | 
+ | haven't found it so  | et,' said Alice; 'b | ind that it was onl | 
+ | Perhaps it hasn't on | ,' Alice ventured t |  things very anxiou | 
+ | he set to work, and  | ery soon finished o | one of the oth,r sw | 
+ | s, and she tried the | effect of lying dow | e,of the party went | 
+ | ate guests to execut | on--once more the p | ing at the moment s | 
+ | ringlets, and mine d | esn't go in ringlet | stair is,in fact  | 
+ | ong as I get SOMEWHE | E,' Alice added as | 'T as an arm for al | 
+ | ther before she came | in sight of the hou | uget its head is su | 
+ | markable in that; no | did Alice think it |  is the same thi;g  | 
+ | r opened his eyes ve | y wide on hearing t | dress twe pictures  | 
+ | go through next walk | ng about at the oth |  a waite batter abo | 
+ | l,' she gave one sha | p kick, and waited | k,Twill you couble  | 
+ | e doors all round th | hall, but they wer |  all the time about | 
+ | he found a little bo | tle on it, ('which | t sixte on their th | 
+ | me ten soldiers carr | ing clubs; these we | aslers and the sou | 
+ | ing her face--and sh | is such a nice sof | ings and sta-- is t | 
+ | ajesty,' said Two, i | a very humble tone |  a ver, humble to,e | 
+ | ried on the breeze t | at followed them, t | oked for them the  | 
+ | heard a little anima | (she couldn't gues | s 'this fire his  | 
+ |  somebody, so manage | to put it into one |  the witn,ss too th | 
+ | SOMEWHERE,' Alice ad | ed as an explanatio | ad a larg, pigeon h | 
+ | ing off to other par | s of the ground, Al | age and she tried  | 
+ |  of a water-well,' s | id the Hatter; 'so | od the Hatt-r ',o  | 
+ | or the fan and the p | ir of white kid glo | ople hedgehogs and | 
+ | the use of a book,'  | hought Alice 'witho | ard the Dormouse ,i | 
+ | as very glad to find | her in such a pleas | ence in the same si | 
+ | enly down, so sudden | y that Alice had no |  his near, 'it down | 
+ | King looked anxiousl | at the White Rabbi |  at the White Rabbi | 
+ | terpillar took the h | okah out of its mou | ouse opened that it | 
+ | trial done,' she tho | ght, 'and hand roun |  had now a,out and | 
+ | , for her neck kept  | etting entangled am | ,es and he she was | 
+ | t in time to hear it | say, as it turned a | ull yourself and t | 
+ |  on with the game,'  | he Queen said to Al | nd the Queen said,t | 
+ | bria, declared for h | m: and even Stigand | re i, such a neight | 
+ | y frightened all the | time at the thought |  at the top with hi | 
+ | great crash, as if a | dish or kettle had | d said very,anxious | 
+ | fter a time she hear | a little pattering |  to them so severea | 
+ |  in her pocket) till | she was about a foo |  as said as sh) add | 
+ | ried upstairs, in gr | at fear lest she sh | ated them sam,lesso | 
+ | Footman seemed to th | nk this a good oppo | ir own mind a pair  | 
+ | , I hadn't to bring  | ut one; Bill's got | ,rst sneezing by th | 
+ | nding that nothing m | re happened, she de | an in the right siz | 
+ | it very nice, (it ha | , in fact, a sort o | d and find , (air  | 
+ | me he was going a jo | rney, I should say | n she had nou gloe | 
+ | VERY wide, but she g | ined courage as she | ne and lo,ked at it | 
+ | -yes, that's about t | e right distance--b | -re ,o do with you | 
+ |  hope it'll make me  | row large again, fo | o go ling again a g | 
+ | 'll never do to come | upon them THIS size |  the cencur of the  | 
+ |  to be ashamed of yo | rself for asking su |  see if she mean'  | 
+ | eing the Cheshire Ca | sitting on a bough | ss as be offuralith | 
+ |  MORE THAN A MILE HI | H TO LEAVE THE COUR |  THE COULE HIT TO Y | 
+ |  wrong about the cru | bs,' said the Mock | tly and was ements | 
+ |  tea,' said the Hatt | r, with an anxious | en v,ry earnestly  | 
+ | ne feet high, and sh | at once took up th | ings at the ,tick  | 
+ | that they must be co | lected at once and | fully ugly child w | 
+ | more than Alice coul | bear: she got up i |  be deeply and beg | 
+ | d the Pigeon in a su | ky tone, as it sett | led out and this w | 
+ | r, but thought they  | ere nice grand word | O, a good wain that | 
+ | t it more clearly,'  | lice replied very p | he never do to co,r | 
+ | sky all the time he  | as speaking, and th | ad looked at them s | 
+ | s well as I do,' sai | the Hatter, 'you w |  Alice 'but y,u wo | 
+ | ieces against one of | the trees behind hi | ten them attempt th | 
+ | I'd have said to the | porpoise, "Keep bac | ' said the Caterpi | 
+ |  shook its head impa | iently, and said, w | ing anything more  | 
+ | en, tossing her head | impatiently; and, t |  ,nd when she foun | 
+ | rned sulky, and woul | only say, 'I am ol |  say 'I a, old bac | 
+ | artled by seeing the | Cheshire Cat sittin | e were Cat sit in a | 
+ | she saw in another m | ment that it was ad | stardmine near the | 
+ | eat hurry; 'and thei | names were Elsie, |  never do;bringing  | 
+ |  the Caterpillar see | ed to be in a VERY |  in the house in th | 
+ | Alice, a little timi | ly, 'why you are pa | ly we,t on talking | 
+ | n that poky little h | use, and have next |  had been found and | 
+ | The door led right i | to a large kitchen, |  a large round any  | 
+ | of the cakes, and wa | delighted to find |  to be a foo,man be | 
+ |  Queen furiously, th | owing an inkstand a | ir argame this c,us | 
+ |  did,' said the Gryp | on, sighing in his | on ,ighing its rat | 
+ | ol, and the great ha | l, with the glass t | ri,g the glass 'I  | 
+ | t, of course, I mean | ,' the King hastily | t,d their ve,dicted | 
+ | inding that nothing  | ore happened, she d | ones and she tried  | 
+ | d she very good-natu | edly began hunting | ned her to be a- ol | 
+ | t of its mouth, and  | ts great eyes half | ager great gur,t l | 
+ | e came upon a little | three-legged table, |  and then said 'Th | 
+ | e, till at last it s | t down a good way o | o, finished off the | 
+ | hing to what I could | say if I chose,' th | s of high and her  | 
+ | al: this fireplace i | narrow, to be sure |  n:ticer the list  | 
+ | 'VE been to a day-sc | ool, too,' said Ali | oolden in a low -r | 
+ | ght, I'm afraid,' sa | d Alice, timidly; ' | d A,ice timidl, ' | 
+ | ook itself, and bega | singing in its sle |  staring a,out in t | 
+ | do nothing of the so | t,' said the Mouse, | es the sounds of t | 
+ | 'but little girls ea | eggs quite as much |  when they passed u | 
+ | e list of the singer | in the last concer | ing the end of the  | 
+ |  she was quite surpr | sed to find that sh | sed to this last re | 
+ | a minute or two, the | began moving about |  a Duch a tarib, a | 
+ | and memory, and much | ess--you know you s | s shore ',they dr | 
+ | ons--in fact, we wen | to school every da |  sh--ll voic, silen | 
+ | back to the game, th | Queen merely remar |  night it court ,as | 
+ | You know what to bea | tify is, I suppose? |  somesomeds and suc | 
+ | up to the Mock Turtl | , who looked at the |  at last with a de | 
+ | ment down went Alice | after it, never onc |  and looking every | 
+ | ol rippling to the w | ving of the reeds-- | or the floor in an | 
+ | might do very well a | pigs, and was just | d pictures for the  | 
+ | er was out of sight  | efore the officer c | ook at the door an | 
+ | 'Explain all that,'  | aid the Mock Turtle | uthing the Queen',' | 
+ | ice had begun to thi | k that very few thi |  and very very fon | 
+ | went, as if it had l | st something; and s | st s,e had nothing  | 
+ | 'Nearly two miles hi | h,' added the Queen | sed them so when s | 
+ | orners: next the ten | courtiers; these we |  court:was in confu | 
+ | 'But what happens wh | n you come to the b | thes to herself be | 
+ | lice, always ready t | make herself usefu | list,r of little pe | 
+ |  seem to encourage t | e witness at all: h |  a great in the way | 
+ | ce: one old Magpie b | gan wrapping itself |  h:r sister of by h | 
+ |  its mouth again, an | said, 'So you thin | ight us the Quee,  | 
+ | sure to do that,' sa | d the Cat, 'if you | d the Cat 'if ,ou  | 
+ | r anxiously at the c | ok, to see if she m | icus and the littl | 
+ | riddles.--I believe  | can guess that,' s | uch a g.--t convers | 
+ | te know what to say  | o this: so she help | ore to do listened | 
+ | y, was the King; and | as he wore his crow | l, the White Ra;bit | 
+ | sion of voices--'Hol | up his head--Brand |  happened litt-- si | 
+ | running when they li | ed, and left off wh | k about hearing an | 
+ | t at all,' said Alic | : 'she's so extreme |  'she h,d nothing  | 
+ |  are "much of a much | ess"--did you ever | s"such a press  | 
+ | he Cat went on, 'you | see, a dog growls w | d it in a day ,r tw | 
+ | But I've got to see  | hat the mouse doesn | o doubt and then n | 
+ | The further off from | England the nearer |  the little golden  | 
+ |  sleep, 'that "I bre | the when I sleep" i | t were,all cre"sed  | 
+ | han no time she'd ha | e everybody execute | den weel so she tr | 
+ | ce, (though she very | seldom followed it) | un, (t advictlang i | 
+ | o creatures got so c | ose to her, one on | ise to herself in  | 
+ | at she looked down i | to its face in some |  you hold it too b | 
+ | t bite,' Alice cauti | usly replied, not f | uply ,ound the Que | 
+ | er to watch them, an | just as she came u |  felt very anxio,sl | 
+ | slate-pencil, and th | choking of the sup | ir gr-at del,ght it | 
+ |  opened his eyes ver | wide on hearing th | ing the eggs' said | 
+ | e of them attempted  | o explain the paper | one side and up the | 
+ |  might well say this | , 'to go on crying |  'I to go on cryin | 
+ | , and rightly too, t | at very few little | ,leave off for so,e | 
+ | she said this she lo | ked down at her han | sed to herself as  | 
+ | ou, won't you, will  | ou, won't you, will | ow, you won', you | 
+ | I WAS when I got up  | his morning, but I | itting alith my Qar | 
+ |  was just going to l | ave the room, when | ar to be it venisu | 
+ | n talk: at any rate, | there's no harm in |  her h:se in such a, | 
+ | , nursing a baby; th | cook was leaning o | ,he she was lusi;es | 
+ | t on his spectacles  | nd looked anxiously | ooking at everybody | 
+ | a little shaking amo | g the distant green | t down in a deep vi | 
+ | ust as I'd taken the | highest tree in the | ' she said to hers | 
+ | o eat or drink somet | ing or other; but t |  the ristant bott e | 
+ | t as far as they wou | d go, and broke off | n on so long again | 
+ | bowed, and took the  | himble, looking as | amour,of a large li | 
+ | ng in it,' but none  | f them attempted to | oom in a,most extra | 
+ | 'but it's no use goi | g back to yesterday | n' said the Caterp | 
+ | tion; and as Alice c | uld not think of an | uld ;ot thint on it | 
+ | rself, for she had f | lt quite unhappy at | und o,t a neeplied  | 
+ | otman began by produ | ing from under his | ed in her head and | 
+ | deal to ME,' said Al | ce hastily; 'but I' |  how she h,d beeanc | 
+ | h you,' said the Duc | ess; 'and the moral | ess ,and the moral | 
+ |  so close to her, on | on each side, and |  she had been we,t  | 
+ | that they'd let Dina | stop in the house |  her sister of litt | 
+ | in the newspapers, a | the end of trials, | d the other arm ,n | 
+ | ed out, 'You'd bette | not do that again! |  down ,o her usual  | 
+ | ure to do that,' sai | the Cat, 'if you o | ged the Cat ',f yo | 
+ | d see it quite plain | y through the glass |  the same thing abo | 
+ | ected at all,' said  | he White Rabbit; 'i | et the White,Rabbit | 
+ | o her that she might | as well look and se | en lessons you'd o | 
+ | ruck against the roo | of the hall: in fa | sly as she could no | 
+ | ought poor Alice, 't | pretend to be two | re of the proper,wa | 
+ | ttle irritated at th | Caterpillar's maki |  Caterpillar's maki | 
+ |  here; the great won | er is, that there's | ing i;self up till  | 
+ |  the Queen's voice i | the distance, scre |  she did not chick | 
+ | e jurors were writin | down 'stupid thing |  deeply and began  | 
+ | ed him Tortoise beca | se he taught us,' s | se here and brough | 
+ |  sense in your knock | ng,' the Footman we |  and went by this t | 
+ | t-hand bit to try th | effect: the next m |  -nd of the doors o | 
+ |  or two she walked o | in the direction i |  things and shop t | 
+ | y interesting dance  | o watch,' said Alic | or the hand with t | 
+ | f course had to leav | off being arches t |  one of the trees a | 
+ | e Dodo could not ans | er without a great | elf with the edge o | 
+ |  the March Hare, who | had followed him in | e the little go,l a | 
+ | shriek and a fall, a | d a crash of broken | sort as she could,l | 
+ | o her feet, for it f | ashed across her mi | unded it a,ain farc | 
+ | Canary called out in | a trembling voice t | ight before 'Sure  | 
+ | e to be a LITTLE lar | er, sir, if you wou | s and said by way | 
+ | ly about as it went, | as if it had lost s |  and managing for t, | 
+ | the fact is, you see | Miss, this here ou |  so shouldn,t wante | 
+ | had been anything ne | r the right size, t |  down to the parrow | 
+ | n her flamingo, and  | egan an account of | abbit actually,been | 
+ | bit, trotting slowly | back again, and loo |  an, began anxiousl | 
+ | hey went up to the M | ck Turtle, who look | us shoulder and wa | 
+ | as the whole pack of | cards: the Knave wa |  she was began look | 
+ | under which she had  | een wandering, when | one such a nowons o | 
+ |  reminding her very  | uch of a globe of g | ow us the fire lic | 
+ | ad never seen such a | curious croquet-gro | ong the right size  | 
+ | udge, by the way, wa | the King; and as h | d a ,arge pool o, t | 
+ |  when I got up this  | orning, but I think | orrow I never OIk | 
+ | at her, and the Quee | said severely 'Who |  sort ,I know what  | 
+ | t: 'I never was so o | dered about in all | d:r is too close a | 
+ | he got up very sulki | y and crossed over | n to itself and on | 
+ | ce, she went on, 'Wh | t's your name, chil |  ,ou see as t,ey  | 
+ | to encourage the wit | ess at all: he kept |  a trembling at all | 
+ | ile she was looking  | t the place where i | o doubt as she was  | 
+ | rdeners instantly ju | ped up, and began b | ted the wandering m | 
+ | ice looked at the ju | y-box, and saw that | ay 'what would be  | 
+ | it was labelled 'ORA | GE MARMALADE', but | n the brought to do | 
+ |  what the moral of t | at is, but I shall | o was now about a t | 
+ | large crowd collecte | round it: there wa |  and said to Alice | 
+ | ions; 'and besides,  | hat would be the us | ere ;nd there was , | 
+ | egs of the table, bu | it was too slipper | rile she was beg,nn | 
+ | u, and must know bet | er'; and this Alice | o,re 'I'll have no | 
+ | -"Never imagine your | elf not to be other | -"y remarkable sone | 
+ | , she was appealed t | by all three to se | ,ught to be anroura | 
+ | e know what to say t | this: so she helpe | at she might pets i | 
+ | et to work throwing  | verything within he | lat a thing tral no | 
+ |  can talk: at any ra | e, there's no harm |  so she :ent hose | 
+ | eaves, which she fou | d to be nothing but |  of t,e bottle was  | 
+ | r it would like the  | ame: however, it on | ate piece of the Lo | 
+ | , of course, to begi | with,' the Mock Tu | ,with the d,stant s | 
+ |  civil, you'd better | finish the story fo |  to be,afraid the e | 
+ | r eyes anxiously fix | d on it, for she fe |  a very clear notio | 
+ | rush, and had just b | gun 'Well, of all t | unni,g the White Ra | 
+ | t,' said the King, ' | nless it was writte | o, you wouldn't k,e | 
+ | was another puzzling | question; and as Al | d the serpents and  | 
+ |  getting very sleepy | 'and they drew all | upon her own ears f | 
+ | g to look for her, a | d she trembled till | ce meanweresting ,o | 
+ |  in the same words a | before, 'It's all | d something noticed | 
+ | ght to eat or drink  | omething or other; | o chance ook oo the | 
+ |  are back in their p | oper places--ALL,' | opted placesALL' | 
+ |  said the White Rabb | t; 'in fact, there' |  'but it soone to  | 
+ | tter leave off,' sai | the Gryphon: and A |  Alice was a r,und  | 
+ | she said to herself, | and shouted out, 'Y |  how to speak fill , | 
+ | for bringing these i | : but I hadn't quit |  which was his firs | 
+ | book of rules for sh | tting people up lik |  fell asleep instan | 
+ | ould be like, but it | puzzled her too muc |  she was now,about  | 
+ | lice quietly said, j | st as if it had com | s a little sister,o | 
+ | tman in livery, with | a round face, and l |  could not fac, an | 
+ |  found at first was  | n managing her flam | o small as this sig | 
+ | y tone, 'Why, Mary A | n, what ARE you doi | n hal, of a,y rate | 
+ |  Mouse had changed h | s mind, and was com | s teacup and brew t | 
+ | rt of thing that wou | d happen: '"Miss Al | d do to like that n | 
+ | hey got settled down | in a minute or two, | and in the party we | 
+ | ried to say "HOW DOT | THE LITTLE BUSY BE |  THE LITTLE "USY BE | 
+ |  Majesty must cross- | xamine THIS witness | ife and Turtring i- | 
+ | er again, and she th | ught at first she w | ir full ,f the gard | 
+ | ay; 'and even if my  | ead would go throug | oo; was in my time | 
+ | eces against one of  | he trees behind him | ettle began more th | 
+ | ed the Gryphon, and, | taking Alice by the |  after a few m,rk t, | 
+ | the window, and one  | oot up the chimney, | ook how sh, would h | 
+ | eard was a general c | orus of 'There goes | osion of voices'  | 
+ | nt was, that if some | hing wasn't done ab | ding n,thing but hu | 
+ | ghtened by this very | sudden change, but | under hilfng she w | 
+ | h, and had just begu | 'Well, of all the | t,turned 'Well the | 
+ | tled when she heard  | er voice close to h | ook at them when th | 
+ | e we change the subj | ct,' the March Hare | ing and brought it  | 
+ | nn, and be turned ou | of the house befor |  o, the house and  | 
+ | it'll never do to co | e upon them THIS si |  of the criamed on  | 
+ | ad made out the prop | r way of nursing it | unt in one and wond | 
+ |  was an old Turtle-- | e used to call him | or old thing to ex-- | 
+ |  in her lessons in t | e schoolroom, and t | ice and writ her l | 
+ | ore she found hersel | falling down a ver |  in the long hall  | 
+ | ves, which she found | to be nothing but t | d t,e sort in a ve | 
+ | r sister, who was ge | tly brushing away s | t as she,was by the | 
+ | uld not tell whether | they were gardeners |  they were gardener | 
+ | 'I can't help it,' s | id Alice very meekl | id Alice very me,kl | 
+ | f course,' the Mock  | urtle said: 'advanc | eer wait,ng presson | 
+ | ith one finger, as h | found it made no m | iren into its ,ade  | 
+ |  up, and began bowin | to the King, the Q | s t, the King the  | 
+ |  ME,' but neverthele | s she uncorked it a | s a,d such a neight | 
+ | , it's a very intere | ting dance to watch | ,and saying at extc | 
+ | of course,' said the | Dodo, pointing to A |  say 'if,you or no | 
+ | , and the small ones | choked and had to b | ,te pictures or con | 
+ | eaning in it,' but n | ne of them attempte | ement she ha, nothi | 
+ |  you call him Tortoi | e, if he wasn't one | g seened 'She want | 
+ |    'In my youth,' sa | d his father, 'I to |  your hard as s,e r | 
+ |  'and the moral of t | at is--"Oh, 'tis lo | ic'something so th | 
+ | e said to herself, f | r she had felt quit | llower the other ,i | 
+ | Turtle, who looked a | them with large ey | tily a, the mushroo | 
+ |  '--but I shall have | to ask them what th | to--t all them so m | 
+ | 'S she, and I'm I, a | d--oh dear, how puz | d put ,t didn't s,g | 
+ | d having seen in her | brother's Latin Gra |  didn't go down on  | 
+ | rry: a large pigeon  | ad flown into her f | one:with hand while | 
+ |  taken the highest t | ee in the wood,' co | o went on to look o | 
+ | o at last turned sul | y, and would only s |  words to say it ov | 
+ |  housemaid,' she sai | to herself as she | d as soone, on thei | 
+ | last the Mouse, who  | eemed to be a perso | ad be a prick ,nd t | 
+ | tea,' said the Hatte | , with an anxious l |  wi,h a sigh 'it's | 
+ | t nothing more happe | ed, she decided on |  in sight he shook | 
+ | s bark sounded quite | faint in the distan |  a long time to say | 
+ | : but now run in to  | our tea; it's getti | :ny for some time  | 
+ | ff from: that he had | never had to do suc | never h:d to do be  | 
+ | hat Cheshire cats al | ays grinned; in fac | side' said the Cat | 
+ | rprised at this, she | was getting so used | s whuld be what,wou | 
+ | hey both bowed low,  | nd their curls got | now what a clat w, | 
+ | ot up and ran off, t | inking while she ra | inking as in the ,a | 
+ | f sight; and an old  | rab took the opport | arge Ca; repeat the | 
+ | Well, at any rate, t | e Dormouse said--' | o co,e and join t,e | 
+ | just in time to avoi | shrinking away alt | ter the blast' and | 
+ | re: she thought it m | st be the right hou | na:ght to be the pa | 
+ | she went on again: ' | wenty-four hours, I | on fact I should:  | 
+ | e word 'moral,' and  | he arm that was lin | abbit as he f,und a | 
+ | ch sooner than she h | d expected: before | d got to the end of | 
+ |  hate--C and D,' she | added in a whisper, |  a Du-- as she,walk | 
+ | emark that had made  | he whole party look | our will some darin | 
+ |  the Duchess by this | time, and was a lit |  at last with a de | 
+ |  get into that beaut | ful garden--how IS |  to nurseand she  | 
+ | hard as it could go, | and making quite a |  and making quite a, | 
+ | u are old,' said the | youth, 'one would h |  'of you, jaws are | 
+ | ed their turns, and  | he did not like the | ards as long a,ain | 
+ | t it was not easy to | know when the race |  to do with your kn | 
+ | istory, and you'll u | derstand why it is | settle,hall have to | 
+ | I don't believe it,' | said the Pigeon; 'b | s she had not as y, | 
+ | he Mock Turtle, who  | ooked at them with | ad been anxiou,ly t | 
+ | idea to Alice, and s | e thought it over a | upid for like,to go | 
+ | seemed to be no sort | of chance of her ev | nes of it any longe | 
+ | I think I should und | rstand that better, | ther Quades at the  | 
+ | me opposite to Alice | they all stopped a | s the selves and sh | 
+ | e, which was immedia | ely suppressed by t | s,the other birds o | 
+ | March Hare,) '--it w | s at the great conc | at a real ,) r-- an | 
+ | erhaps you were neve | even introduced to | ly by this time sa | 
+ | ught was that it mig | t belong to one of | le of great dismanc | 
+ | 'Yes, but some crumb | must have got in a | ing ,nd half of ang | 
+ | g tail, certainly,'  | aid Alice, looking | nd Ali,e very lon,  | 
+ | er, but thought they | were nice grand wor |  w,re nine now and  | 
+ | ' the Mouse replied  | ather crossly: 'of | ad all the creature | 
+ | tree, she went on, ' | hat HAVE you been d | on't,walk the Dor,o | 
+ | -box, and saw that,  | n her haste, she ha | -e s,ook his grey , | 
+ | e again, for this ti | e the Mouse was bri | t finge, this shoul | 
+ | en jumped up and baw | ed out, "He's murde | thing that would ha | 
+ | ad looked under it,  | nd on both sides of | rought to bo round, | 
+ | -C and D,' she added | in a whisper, half | - with a,sigh who  | 
+ | perhaps after all it | might tell her some | en in the lobsters | 
+ | e, now,' thought Ali | e, 'to speak to thi | l, 'w, went to spe | 
+ | se whom she sentence | were taken into cu |  on to her feet up  | 
+ | iced Alice, as she w | nt hunting about, a | uld see it,would be | 
+ | , as usual,' said th | Duchess: 'what a c | ,Duchess ,what wou | 
+ |  were having tea at  | t: a Dormouse was s | hem in pace in her  | 
+ | tiously replied: 'bu | I know I have to b |  I know I have :rie | 
+ | ted the Pigeon, but  | n a more subdued to | it it was cert,inly | 
+ |  little girls eat eg | s quite as much as | and when I was a ch | 
+ | ch caused a remarkab | e sensation among t |  as she listened o | 
+ | of the legs of the t | ble, but it was too | ok being down becau | 
+ |  as she went on, 'I  | ust be Mabel after | old up the Dorm,use | 
+ | e end of half an hou | or so there were n |  for some too bega | 
+ | d she tried the effe | t of lying down wit |  the modouble was  | 
+ | , sir,' said Alice;  | I can't remember th | ,ne ,I don't belo; | 
+ | ed last March--just  | efore HE went mad, | ardmiceHHe--me' | 
+ | f from: that he had  | ever had to do such | ome ha: his his his | 
+ | nd here poor Alice b | gan to cry again, f | ttle tire to the be | 
+ |  himself, and this h | handed over to the | d on the,flurry of  | 
+ | he Queen, but she kn | w that it might hap | ing that,they were  | 
+ | l you, won't you, wi | l you, won't you, w | n you, won't you, w | 
+ | r putting their head | down and saying "C | s' said the Caterp | 
+ | certain to disagree  | ith you, sooner or | ook a ong the eggs | 
+ | half hoping she migh | find another key o |  hand in hand wonde | 
+ | ss said after a paus | : 'the reason is, t |  in the pool' said | 
+ | If you knew Time as  | ell as I do,' said | ary to wonder what  | 
+ | or her, and she trem | led till she shook | ing an, put her eye | 
+ |    The Knave of Hear | s, he stole those t | s I considented to | 
+ | ud; and in another m | ment it was out of | st;rdbire alt havi | 
+ | ng to, but it was to | dark to see anythi |  unea,ily at the st | 
+ | quite know what to s | y to this: so she h | op of the treatures | 
+ |  again, and put it r | ght; 'not that it s | ound a, the beginni | 
+ | portunity for showin | off her knowledge, |  of them didn't kno | 
+ |  and Seven said noth | ng, but looked at T |  looking down lock | 
+ | n when they hit her; | and the baby was ho | ener the blown his ; | 
+ | wish people knew tha | : then they wouldn' |  the other tres to | 
+ | --"Be what you would | seem to be"--or if | --"to be a footman  | 
+ | seen a cat without a | grin,' thought Alic | row to find any ran | 
+ | puzzled her very muc | at first, but, aft |  flown into her fin | 
+ | y straightened out,  | nd was going to giv | is was going to gi, | 
+ | said the King; 'and  | on't be nervous, or | ound her been;broke | 
+ | ws, and find a pleas | re in all their sim |  i, that poky littl | 
+ | r about fifteen inch | s high: she tried t |  the end of the sam | 
+ | mebody said,' Alice  | hispered, 'that it' | one side 'w,ven int | 
+ | Queen turned crimson | with fury, and, aft |  found and said 'S | 
+ | I COULD NOT SWIM--"  | ou can't swim, can | esses and swersi--" | 
+ | ice did not quite kn | w what to say to th | w the lookaw so lon | 
+ | , as the doubled-up  | oldiers were always | ,rds of a wait w-s | 
+ | ice)--'and perhaps y | u were never even i |  we)--nice grand wo | 
+ | ny one of them can e | plain it,' said Ali | tantly and said to | 
+ | it was, and, as the  | ory positively refu | oothin, to ,he begi | 
+ | ing its body tucked  | way, comfortably en | ow come and join th | 
+ |  all except the Liza | d, who seemed too m | w the end of trem | 
+ | -POCKET, and looked  | t it, and then hurr | -ming a, the house | 
+ | orgotten the little  | olden key, and when | arge because he was | 
+ |  of the jury wrote i | down 'important,' |  a little in each t | 
+ |  see, as she couldn' | answer either ques |  wen, on in a deep  | 
+ | lking to him,' said  | lice desperately: ' | o deal would,deny i | 
+ |  in it,' but none of | them attempted to e |  a mom,nt to the p | 
+ |  instance, suppose i | were nine o'clock | coure or ,wo with  | 
+ |  glad to find her in | such a pleasant tem | their slates and t | 
+ |  gave a little screa | , half of fright an | s life had you fo | 
+ | like being that pers | n, I'll come up: if |  and I could not o | 
+ | Alice, very loudly a | d decidedly, and th | ter t, do lefn and | 
+ | aucepan flew close b | it, and very nearl | y silent for a minu | 
+ |    Yet you finished  | he goose, with the | or one of the teasu | 
+ | almost wish I hadn't | gone down that rabb |  down the same hair | 
+ | ce would take the pl | ce of the Mock Turt | ason to be a footma | 
+ | aid Alice very humbl | : 'you had got to t |  'I'll have you do | 
+ | Duchess said after a | pause: 'the reason | d see if she meant | 
+ | ke her, down here, a | d I'm sure she's th | res ar, say 'I a,  | 
+ | into a sort of knot, | and then keep tight |  and then keep tigh, | 
+ |  at last, and they s | t down again in a r | ed to re,ain where  | 
+ | uld not, would not,  | ould not, would not | old jus, under a w, | 
+ | nimals, and some wer | birds,) 'I suppose |  on bo,nd her oone | 
+ | e up to the door, an | tried to open it; |  pertently and ,ro | 
+ | xecutioner myself,'  | aid the King eagerl | aid the King eage,l | 
+ |  that makes them sou | --and camomile that | d of againly to mak | 
+ | her very earnestly,  | Now, Dinah, tell me | rosticy were tryin, | 
+ |  eels, of course,' t | e Gryphon replied r | re so,d of triti,g  | 
+ | king the daisies, wh | n suddenly a White |  a small Turt it,as | 
+ | y civil of you to si | down without being | tlewill you our c | 
+ | hat they must be col | ected at once and p |  little girls in th | 
+ | of thing that would  | appen: '"Miss Alice | ong the rest of the | 
+ | that she hardly knew | what she was saying |  the little golden  | 
+ | ill you, won't you,  | ill you, won't you, | ast you,join the d, | 
+ | with its mouth open, | gazing up into the |  under the Queen a, | 
+ | o leave off being ar | hes to do this, so | ind that they had t | 
+ | lf from being run ov | r; and the moment s |  the mindle in the  | 
+ | w the creatures orde | one about, and mak |  on to her fan she  | 
+ | as near enough to lo | k over their slates | k the eatt' said t | 
+ | ut then,' thought Al | ce, 'shall I NEVER |  'what,would not a | 
+ | ly the lobsters and  | he turtles all adva | abbe and the little | 
+ |  in a low, timid voi | e, 'If you please, | used till,she got t | 
+ |  of the garden, wher | Alice could see it |  Alice could s,e it | 
+ | use did not notice t | is question, but hu | ok up the house be | 
+ | , it goes on "THEY A | L RETURNED FROM HIM | ,ce RNould se" 'Re | 
+ | good terms with him, | he'd do almost anyt |  and put a minute o, | 
+ | le here; the great w | nder is, that there | ill suc;essed to th | 
+ | dvice, (though she v | ry seldom followed | ile s, (mall her so | 
+ | she looked down at h | r feet, they seemed | m and she crose to | 
+ | ou should say what y | u mean,' the March | ught to be party we | 
+ | r the candle is blow | out, for she could |  and such a nice so | 
+ | So she sat on, with  | losed eyes, and hal | et do to look,at he | 
+ | RED rose-tree, and w | put a white one in | urned ou- of ,he ra | 
+ | en a cat without a g | in,' thought Alice; | in but it makes an | 
+ | , and at once set to | work throwing every | ,were or two would | 
+ |  quite pale (with pa | sion, Alice thought | stant Alice(thinki | 
+ | this, she noticed th | t one of the trees |  Cat,rpillar to her | 
+ |  there MUST be more  | o come, so she sat | ocking so she tril | 
+ | s, and the pattern o | their backs was th |  ,hrinking away the | 
+ | to herself, and shou | ed out, 'You'd bett | ded out 'T,e race i | 
+ |  up the fan and glov | s, and, as the hall |  and as the soldi | 
+ |  her head to keep ba | k the wandering hai | ley at one end of t | 
+ | lice's shoulder as s | e added, 'and the m | ren the Queen as t | 
+ | irection,' the Cat s | id, waving its righ | opted to,it in a ve | 
+ | Yes, I think you'd b | tter leave off,' sa | t h,ve our heads cu | 
+ | en of Hearts were se | ted on their throne | ted them the List  | 
+ | he jury had a little | recovered from the |  'if you or doubtf | 
+ |  Hearts, who only bo | ed and smiled in re | d and s,iled in rou | 
+ | its voice to a shrie | , 'and just as I wa |  and then keep bac | 
+ | Queen, pointing to t | e three gardeners w | ien t,e thistly as  | 
+ |  I eat or drink anyt | ing; so I'll just s |  the soup and seem | 
+ | erly the lobsters an | the turtles all ad |  all the time and s | 
+ |  she too began dream | ng after a fashion, |  again and was goi | 
+ | 't see how he can EV | N finish, if he doe | ing of the gandly u | 
+ | ly the Rabbit came u | to the door, and t |  nearly the to expl | 
+ | said to herself, 'to | be going messages f |  the two creatu,es  | 
+ | hought she had never | seen such a curious | elf such a noise in | 
+ | t them in books, and | she was quite pleas |  would say when,the | 
+ | ome, let's hear some | of YOUR adventures. | ull, uptin it or a | 
+ | r, you see, as she c | uldn't answer eithe | u,dn't ans,er eithe | 
+ | ad paused as if it t | ought that SOMEBODY | ought to the three  | 
+ | ped up and bawled ou | , "He's murdering t | s and the sound of | 
+ |  sure those are not  | he right words,' sa | ook at the pictures | 
+ | ngue hanging out of  | ts mouth, and its g | itten in the distan | 
+ | , if you drink much  | rom a bottle marked | ,w dreadfully ugly  | 
+ | ainly: but now run i | to your tea; it's |  your:turned at the | 
+ | ng our best, afore s | e comes, to--' At t | ill remely ,emarked | 
+ |  whole place around  | er became alive wit | ong the bottle was  | 
+ | s, 'I do wish they W | ULD put their heads | l,p in the house do | 
+ | fore they saw the Mo | k Turtle in the dis | s with the passage | 
+ | the way of expecting | nothing but out-of- | dedly to see the Qu | 
+ | ocket, and pulled ou | a box of comfits, |  bein, arches voice | 
+ | nther received knife | and fork with a gro |  a little walkey an | 
+ |  listeners were perf | ctly quiet till she | ed the pleased to f | 
+ | ight; 'not that it s | gnifies much,' she | on f;ving it a very | 
+ | ly for Alice, the li | tle magic bottle ha | gly to see i, she m | 
+ | gs of the table, but | it was too slippery |  it was too dar, to | 
+ | ce to a shriek, 'and | just as I was think | thour I as the,way  | 
+ | , and had just begun | to dream that she w | ,ng the distant sob | 
+ |  ought to be ashamed | of yourself,' said | room in her face in | 
+ | e one of the guinea- | igs cheered, and wa | ight been invise in- | 
+ |  others took the lea | t notice of her goi | ning of labily and  | 
+ | s,' said the Mock Tu | tle: 'crumbs would | t,e and said 'The  | 
+ | in the shade: howeve | , the moment they s |  the moment :hey sa | 
+ |  be herself a grown  | oman; and how she w | ongrappers 'You's  | 
+ |  said the Mock Turtl | at last, with a de |  little sister of b | 
+ | en,' the Gryphon wen | on, 'if you don't |  i, a deep viiling  | 
+ | ttle house, on the d | or of which was a b | ong all of,which wa | 
+ | the Dormouse went on | yawning and rubbin | ing all difficulty  | 
+ | for a few minutes to | see if she was goin | end seen shake it a | 
+ | e Panther took pie-c | ust, and gravy, and | our and getting o- | 
+ | ith its mouth open,  | azing up into the r | f way you go' sai, | 
+ | 'Come on, then,' sai | the Queen, 'and he | d her he,d to ,erse | 
+ | ueted the Queen's he | gehog just now, onl | ding in its didjeal | 
+ | wn at her hands, and | was surprised to se |  would not at h,ar  | 
+ |  away from him, and  | aid to the Knave 'T | aid to herself,'Tha | 
+ | n, Alice noticed, ha | powdered hair that |  ,ad just upset ,he | 
+ |  a little feeble, sq | eaking voice, ('Tha | ouring in the sa,d  | 
+ | nd her eyes immediat | ly met those of a l | one of the table as | 
+ | n at once, in a larg | ring, with the Mou |  was now ,r mine t | 
+ | , I'd hardly finishe | the first verse,' | ,the simper her voi | 
+ |  might just as well  | ay,' added the Marc | aving the eggs' sa | 
+ | ng is, to get into t | at beautiful garden | ied a,out a great h | 
+ | when they passed too | close, and waving t |  about it about fif | 
+ | f course they were', | said the Dormouse; | ther was a good man, | 
+ | rs, and retire in sa | e order,' continued | di,g' said the Cat | 
+ | n, 'that they'd let  | inah stop in the ho | o,sed to look about | 
+ | t go no lower,' said | the Hatter: 'I'm on | ther to herse,y fo | 
+ | by to it as she did  | o, and giving it a | o so like 'for t | 
+ |  coaxing tone, and s | e tried hard to whi | up the soup ,nd th | 
+ | d her arms round it  | s far as they would | o and flat with t | 
+ |  to them,' thought A | ice, 'or perhaps th | ise 'on, would har | 
+ | r,' remarked the Kin | , 'or I'll have you | , and she tremble | 
+ | e quite hungry to lo | k at them--'I wish | s that it was only  | 
+ | ot quite sure whethe | it was good manner |  the little golden  | 
+ | looking up into the  | ky all the time he | attery to this took | 
+ | ut, now that I'm per | ectly sure I have n | ag, and I'm beture | 
+ |  be removed,' said t | e King very decided | At very dec,dedly  | 
+ |  so out-of-the-way d | wn here, that I sho | an half-hi-ht -old  | 
+ |  things at all, as t | e game was in such |  cry always ge,ting | 
+ | 'You're enough to tr | the patience of an |  much' said the Ha | 
+ | een furiously, throw | ng an inkstand at t | ing in the li,tle p | 
+ | n't matter which way | you go,' said the C |  the ground you kn | 
+ | ll, it must be remov | d,' said the King v | ',said the King ve | 
+ | away without speakin | , but at last it un | ing at the mushroom | 
+ | t she did it at last | and managed to swa | nied out and manag | 
+ | ue,' said the Duches | : 'flamingoes and m |  ,and the moral of | 
+ | n his brush, and had | just begun 'Well, o | never had j,st say  | 
+ | --' here the Mock Tu | tle yawned and shut | --you a little befo | 
+ |  upstairs, in great  | ear lest she should | inget to ,ake ONE O | 
+ | shroom, and crawled  | way in the grass, m | o rese,the grass m | 
+ | had VERY long claws  | nd a great many tee | all and as it cat  | 
+ | r was an old Turtle- | we used to call him |  down to long that - | 
+ | ed clamour of the bu | y farm-yard--while | ry and was lying d | 
+ | a little glass box t | at was lying under | le and the little g | 
+ | ouse did not notice  | his question, but h | ore about her other | 
+ | the thing yourself,  | ome winter day, I w | ore in clasted wit, | 
+ | cular as to size,' A | ice hastily replied | on the proper pl,ce | 
+ | the fan and gloves,  | nd, as the hall was | owing any moved of, | 
+ |  are so VERY nearly  | t the top of his he | one about it about  | 
+ | ite natural); but wh | n the Rabbit actual | t was talki); the f | 
