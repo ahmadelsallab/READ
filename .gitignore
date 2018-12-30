@@ -7,6 +7,7 @@
 *.pyc
 *.npy
 *.npz
+*.pkl
 events.*
 words/
 
